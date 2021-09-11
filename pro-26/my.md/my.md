@@ -1,0 +1,1 @@
+add boric acid in water and and add that in fevicol, your slime is ready
